@@ -1,0 +1,2 @@
+# Zero-Dizayn
+Öncelikle selamunaleyküm
